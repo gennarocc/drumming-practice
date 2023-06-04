@@ -18,6 +18,8 @@ Prepare for 15 Slow recording
 ### Arhived
 
 ## Jams and Beats
-15 Slow
+[15 Slow](https://github.com/gennarocc/drumming-practice/assets/13220093/56c961d4-d3ca-494d-8617-4ab5eaba974f)
+
+
 
 ## Transcriptions and Songs
