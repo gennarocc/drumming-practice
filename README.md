@@ -7,6 +7,7 @@
 
 ## For Next Week
 Transcriptions Plays
+
 Linear Practice
 
 ## Linear Drumming
