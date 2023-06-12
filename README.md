@@ -34,7 +34,7 @@ Linear Practice
 
 [Sleep - Marijuanaut's Theme](https://www.youtube.com/watch?v=AMUaWc46_0U)(Stoner Rock)
 
-[Enslaved - Fenris\(https://www.youtube.com/watch?v=PChTzbvVGI8)(Black Metal)
+[Enslaved - Fenris](https://www.youtube.com/watch?v=PChTzbvVGI8)(Black Metal)
 
 [Incantation - Nocturnal Dominion](https://www.youtube.com/watch?v=E-XyZD1PNGI)(Death Metal)
 
