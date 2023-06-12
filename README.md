@@ -6,7 +6,8 @@
 4. [Transcriptions and Songs](#transcriptions-and-songs)
 
 ## For Next Week
-Prepare for 15 Slow recording
+Transcriptions Plays
+Linear Practice
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
@@ -21,9 +22,11 @@ Prepare for 15 Slow recording
 [15 Slow](https://github.com/gennarocc/drumming-practice/assets/13220093/56c961d4-d3ca-494d-8617-4ab5eaba974f)
 
 
-
 ## Transcriptions and Songs
 [Tragedy - Conflicting Ideas](https://www.youtube.com/watch?v=1zqY32kvKkw)(D-Beat/Punk)
+
 [Yes - Sound Chaser](https://www.youtube.com/watch?v=d9_5kd4b5fU)(Prog Rock)
+
 [Incantation - Nocturnal Dominion](https://www.youtube.com/watch?v=E-XyZD1PNGI)(Death Metal)
+
 [Sleep - Marijuanaut's Theme](https://www.youtube.com/watch?v=AMUaWc46_0U)(Stoner Rock)
