@@ -26,8 +26,17 @@ Linear Practice
 ## Transcriptions and Songs
 [Tragedy - Conflicting Ideas](https://www.youtube.com/watch?v=1zqY32kvKkw)(D-Beat/Punk)
 
+[King Diamond - Welcome Home](https://www.youtube.com/watch?v=l4lqFJWfDxs)(Heavy Metal)
+
 [Yes - Sound Chaser](https://www.youtube.com/watch?v=d9_5kd4b5fU)(Prog Rock)
+
+[Blood Incantation - Slave Species of the Gods](https://www.youtube.com/watch?v=kqnc7XYMc4k)(Prog Death Metal)
+
+[Sleep - Marijuanaut's Theme](https://www.youtube.com/watch?v=AMUaWc46_0U)(Stoner Rock)
+
+[Enslaved - Fenris\(https://www.youtube.com/watch?v=PChTzbvVGI8)(Black Metal)
 
 [Incantation - Nocturnal Dominion](https://www.youtube.com/watch?v=E-XyZD1PNGI)(Death Metal)
 
-[Sleep - Marijuanaut's Theme](https://www.youtube.com/watch?v=AMUaWc46_0U)(Stoner Rock)
+[Mayhem - Deathcrush](https://www.youtube.com/watch?v=Dgzmgk9IhAA)(Death/Black Metal)
+
