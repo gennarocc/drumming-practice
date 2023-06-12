@@ -1,9 +1,9 @@
 # Drumming Practice
 
-1. [For Next Week](#fornextweek)
-2. [Linear Drumming](#linear)
-3. [Jams and Beats](#jamsandbeats)
-4. [Transcriptions and Songs](#transcriptionsandsongs)
+1. [For Next Week](#for-next-week)
+2. [Linear Drumming](#linear-drumming)
+3. [Jams and Beats](#jams-and-beats)
+4. [Transcriptions and Songs](#transcriptions-and-songs)
 
 ## For Next Week
 Prepare for 15 Slow recording
@@ -23,3 +23,7 @@ Prepare for 15 Slow recording
 
 
 ## Transcriptions and Songs
+[Tragedy - Conflicting Ideas](https://www.youtube.com/watch?v=1zqY32kvKkw)(D-Beat/Punk)
+[Yes - Sound Chaser](https://www.youtube.com/watch?v=d9_5kd4b5fU)(Prog Rock)
+[Incantation - Nocturnal Dominion](https://www.youtube.com/watch?v=E-XyZD1PNGI)(Death Metal)
+[Sleep - Marijuanaut's Theme](https://www.youtube.com/watch?v=AMUaWc46_0U)(Stoner Rock)
