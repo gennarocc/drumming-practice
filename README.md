@@ -7,6 +7,7 @@
 
 ## For Next Week
 Transcriptions Plays
+Linear Drumming - Level 3
 
 Linear Practice
 
@@ -14,10 +15,17 @@ Linear Practice
 ![LinearDrumming](images/linear.png)
 ### Currently Practicing
 
+[BBBB3333](https://gscribe.com/share/y7RhKxAegZ6KYmWw5)
+
+[BBBB1111](https://gscribe.com/share/CVrAL3RXGdCp69A68)
+
+[1111CCCC](https://gscribe.com/share/CVrAL3RXGdCp69A68)
+
+### Arhived
+
 [3333!!!!](https://gscribe.com/share/ECp5SYowyZDmxDqC7) - Goal 120bpm
 
 [!!!!4444](https://gscribe.com/share/paPURAiaNmXMz4hQA) - Goal 120bpm
-### Arhived
 
 ## Jams and Beats
 [15 Slow](https://github.com/gennarocc/drumming-practice/assets/13220093/56c961d4-d3ca-494d-8617-4ab5eaba974f)
