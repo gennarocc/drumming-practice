@@ -27,10 +27,11 @@
 [!!!!4444](https://gscribe.com/share/paPURAiaNmXMz4hQA) - Goal 120bpm
 
 ## Jams and Beats
+
 [15 Slow](https://github.com/gennarocc/drumming-practice/assets/13220093/56c961d4-d3ca-494d-8617-4ab5eaba974f)
 
 
-[43 Slow](https://github.com/gennarocc/drumming-practice/assets/13220093/9115f495-3b0d-44b8-b319-b221a8c04dc)
+[43 Slow](audio/43-slow.mov)
 
 ## Transcriptions and Songs
 [Tragedy - Conflicting Ideas](https://www.youtube.com/watch?v=1zqY32kvKkw)(D-Beat/Punk)
