@@ -29,8 +29,8 @@
 ## Jams and Beats
 [15 Slow](https://github.com/gennarocc/drumming-practice/assets/13220093/56c961d4-d3ca-494d-8617-4ab5eaba974f)
 
-[Groove 43](https://gscribe.com/share/EDDQjZbeSBo3D3c47)
 
+[43 Slow](https://github.com/gennarocc/drumming-practice/assets/13220093/9115f495-3b0d-44b8-b319-b221a8c04dc)
 
 ## Transcriptions and Songs
 [Tragedy - Conflicting Ideas](https://www.youtube.com/watch?v=1zqY32kvKkw)(D-Beat/Punk)
