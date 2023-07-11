@@ -6,14 +6,13 @@
 4. [Transcriptions and Songs](#transcriptions-and-songs)
 
 ## For Next Week
-Transcriptions Plays
-Linear Drumming - Level 3
-
-Linear Practice
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
+
 ### Currently Practicing
+
+[Groove 43](https://gscribe.com/share/EDDQjZbeSBo3D3c47)
 
 [BBBB3333](https://gscribe.com/share/y7RhKxAegZ6KYmWw5)
 
@@ -29,6 +28,8 @@ Linear Practice
 
 ## Jams and Beats
 [15 Slow](https://github.com/gennarocc/drumming-practice/assets/13220093/56c961d4-d3ca-494d-8617-4ab5eaba974f)
+
+[Groove 43](https://gscribe.com/share/EDDQjZbeSBo3D3c47)
 
 
 ## Transcriptions and Songs
