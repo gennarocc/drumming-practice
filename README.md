@@ -13,7 +13,7 @@
 
 [BBBB1111](https://gscribe.com/share/wd3b6mDTSm4CN2Vx5)
 
-[1111CCCC](https://gscribe.com/share/iG5LuN86HAUm1chn8)
+[1111CCCC](https://gscribe.com/share/4F69aJ7JPqY3Ljhu5)
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
