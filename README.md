@@ -43,8 +43,11 @@
 ## Aeumbra Transcriptions
 
 [Song 1 - Beat 1](https://gscribe.com/share/4Bw7e2W48mPmcaHW9)
+
 [Song 1 - Beat 2](https://gscribe.com/share/h6M1JjsDvSyQn8zj7)
+
 [Song 2 - Beat 2](https://gscribe.com/share/sespSnjFTU8aq3jx6)
+
 [Song 2 - Beat 3](https://gscribe.com/share/UAENRBxsLKRUj6t68)
 
 
