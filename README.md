@@ -11,6 +11,11 @@
 
 [Groove 43](https://gscribe.com/share/JJ8BTn6bobkYGgaC6)
 
+[****CCCC](https://gscribe.com/share/RLae7H5eCeSqqp2U8)
+
+[*C*C*C*C](https://gscribe.com/share/yyK4jnhJFLaRCBwT8)
+
+[2D2D2D2D](https://gscribe.com/share/svFhgaR5ujr1VHmA6)
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
@@ -31,9 +36,9 @@
 
 [1111CCCC](https://gscribe.com/share/iG5LuN86HAUm1chn8)
 
-[3333!!!!](https://gscribe.com/share/ECp5SYowyZDmxDqC7) - Goal 120bpm
+[3333!!!!](https://gscribe.com/share/ECp5SYowyZDmxDqC7)
 
-[!!!!4444](https://gscribe.com/share/paPURAiaNmXMz4hQA) - Goal 120bpm
+[!!!!4444](https://gscribe.com/share/paPURAiaNmXMz4hQA)
 
 ## Jams and Beats
 
