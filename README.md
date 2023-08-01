@@ -11,24 +11,25 @@
 
 [Groove 43](https://gscribe.com/share/JJ8BTn6bobkYGgaC6)
 
-[BBBB3333](https://gscribe.com/share/Dyr8iHxb9nHbpBoN8)
-
-[BBBB1111](https://gscribe.com/share/wd3b6mDTSm4CN2Vx5)
-
-[1111CCCC](https://gscribe.com/share/4F69aJ7JPqY3Ljhu5)
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
 
 ### Currently Practicing
 
+[****CCCC](https://gscribe.com/share/RLae7H5eCeSqqp2U8)
+
+[*C*C*C*C](https://gscribe.com/share/yyK4jnhJFLaRCBwT8)
+
+[2D2D2D2D](https://gscribe.com/share/svFhgaR5ujr1VHmA6)
+
+### Arhived
+
 [BBBB3333](https://gscribe.com/share/Dyr8iHxb9nHbpBoN8)
 
 [BBBB1111](https://gscribe.com/share/wd3b6mDTSm4CN2Vx5)
 
 [1111CCCC](https://gscribe.com/share/iG5LuN86HAUm1chn8)
-
-### Arhived
 
 [3333!!!!](https://gscribe.com/share/ECp5SYowyZDmxDqC7) - Goal 120bpm
 
