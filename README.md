@@ -11,6 +11,8 @@
 
 [Groove 43](https://gscribe.com/share/JJ8BTn6bobkYGgaC6)
 
+[Groov 43 - Alt](https://gscribe.com/share/Yjo518rLA4uajmqg9)
+
 [****CCCC](https://gscribe.com/share/RLae7H5eCeSqqp2U8)
 
 [STAR-C-STAR-C-STAR-C-STAR-C](https://gscribe.com/share/6rnYLVUFoPGNWEp18)
