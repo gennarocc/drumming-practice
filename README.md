@@ -13,7 +13,7 @@
 
 [****CCCC](https://gscribe.com/share/RLae7H5eCeSqqp2U8)
 
-[*C*C*C*C](https://gscribe.com/share/yyK4jnhJFLaRCBwT8)
+[STAR-C-STAR-C-STAR-C-STAR-C](https://gscribe.com/share/6rnYLVUFoPGNWEp18)
 
 [2D2D2D2D](https://gscribe.com/share/svFhgaR5ujr1VHmA6)
 
