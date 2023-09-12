@@ -9,20 +9,20 @@
 
 ## For Next Week
 
-[Groove 43](https://gscribe.com/share/JJ8BTn6bobkYGgaC6)
+[CC33](https://gscribe.com/share/iZiuGZnxrwczbme86)
 
-[Groov 43 - Alt](https://gscribe.com/share/Yjo518rLA4uajmqg9)
+[**CC](https://gscribe.com/share/RLae7H5eCeSqqp2U8)
 
-[****CCCC](https://gscribe.com/share/RLae7H5eCeSqqp2U8)
+[STAR-C-STAR-C](https://gscribe.com/share/6rnYLVUFoPGNWEp18)
 
-[STAR-C-STAR-C-STAR-C-STAR-C](https://gscribe.com/share/6rnYLVUFoPGNWEp18)
-
-[2D2D2D2D](https://gscribe.com/share/svFhgaR5ujr1VHmA6)
+[2D2D](https://gscribe.com/share/svFhgaR5ujr1VHmA6)
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
 
 ### Currently Practicing
+
+[CC33](https://gscribe.com/share/iZiuGZnxrwczbme86)
 
 [****CCCC](https://gscribe.com/share/RLae7H5eCeSqqp2U8)
 
@@ -46,7 +46,12 @@
 
 [15 Slow](https://github.com/gennarocc/drumming-practice/assets/13220093/56c961d4-d3ca-494d-8617-4ab5eaba974f)
 
+[Groove 43](https://gscribe.com/share/JJ8BTn6bobkYGgaC6)
+
+[Groov 43 - Alt](https://gscribe.com/share/Yjo518rLA4uajmqg9)
+
 [43 Slow](audio/43-slow.mov)
+
 
 ## Aeumbra Transcriptions
 
@@ -56,23 +61,7 @@
 
 [Song 2 - Beat 2](https://gscribe.com/share/sespSnjFTU8aq3jx6)
 
+[Song 3 - Beat 3](https://gscribe.com/share/Rwvfd91C4MJDPUW48)
+
 [Song 2 - Beat 3](https://gscribe.com/share/UAENRBxsLKRUj6t68)
-
-
-## Transcriptions and Songs
-[Tragedy - Conflicting Ideas](https://www.youtube.com/watch?v=1zqY32kvKkw)(D-Beat/Punk)
-
-[King Diamond - Welcome Home](https://www.youtube.com/watch?v=l4lqFJWfDxs)(Heavy Metal)
-
-[Yes - Sound Chaser](https://www.youtube.com/watch?v=d9_5kd4b5fU)(Prog Rock)
-
-[Blood Incantation - Slave Species of the Gods](https://www.youtube.com/watch?v=kqnc7XYMc4k)(Prog Death Metal)
-
-[Sleep - Marijuanaut's Theme](https://www.youtube.com/watch?v=AMUaWc46_0U)(Stoner Rock)
-
-[Enslaved - Fenris](https://www.youtube.com/watch?v=PChTzbvVGI8)(Black Metal)
-
-[Incantation - Nocturnal Dominion](https://www.youtube.com/watch?v=E-XyZD1PNGI)(Death Metal)
-
-[Mayhem - Deathcrush](https://www.youtube.com/watch?v=Dgzmgk9IhAA)(Death/Black Metal)
 
