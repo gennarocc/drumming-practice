@@ -9,21 +9,19 @@
 
 ## For Next Week
 
-[CC33](https://gscribe.com/share/iZiuGZnxrwczbme86)
+[##44](https://gscribe.com/share/RgriWSv93aiUtBC66)
 
-[2D2D](https://gscribe.com/share/svFhgaR5ujr1VHmA6)
+[2D2D]( https://gscribe.com/share/y9qBg1YKcFpgibXWA)
 
-[22DD](https://gscribe.com/share/meuukLUAF5mdsnSB6)
-
-[Your 43 Fast Idea](https://gscribe.com/share/fxCqNfrEnNA2g4F28)
-
-[My 43 Fast Idea](https://gscribe.com/share/Qkr2AcE17w6ScNfL8)
+[43 Fast Idea](https://gscribe.com/share/Wjso4F6h4phietC78)
 
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
 
 ### Currently Practicing
+
+### Arhive
 
 [CC33](https://gscribe.com/share/iZiuGZnxrwczbme86)
 
@@ -35,8 +33,6 @@
 
 [**CC](https://gscribe.com/share/RLae7H5eCeSqqp2U8)
 
-### Arhived
-
 [BBBB3333](https://gscribe.com/share/Dyr8iHxb9nHbpBoN8)
 
 [BBBB1111](https://gscribe.com/share/wd3b6mDTSm4CN2Vx5)
@@ -46,6 +42,12 @@
 [3333!!!!](https://gscribe.com/share/ECp5SYowyZDmxDqC7)
 
 [!!!!4444](https://gscribe.com/share/paPURAiaNmXMz4hQA)
+
+[CC33](https://gscribe.com/share/iZiuGZnxrwczbme86)
+
+[2D2D](https://gscribe.com/share/svFhgaR5ujr1VHmA6)
+
+[22DD](https://gscribe.com/share/meuukLUAF5mdsnSB6)
 
 ## Jams and Beats
 
