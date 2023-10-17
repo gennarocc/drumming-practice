@@ -8,18 +8,26 @@
 
 
 ## For Next Week
+[KRL as 16ths](https://gscribe.com/share/GFibwuXFXeKGVuoS8)
 
-[##44](https://gscribe.com/share/RgriWSv93aiUtBC66)
+[!2!2](https://gscribe.com/share/PNMMctnCGHfUStVx9)
 
-[2D2D]( https://gscribe.com/share/y9qBg1YKcFpgibXWA)
+[DD++](https://gscribe.com/share/yueW9zkimudvucmF9)
 
 [43 Fast Idea](https://gscribe.com/share/Wjso4F6h4phietC78)
 
+[43 Fast V2](https://gscribe.com/share/PNMMctnCGHfUStVx9)
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
 
 ### Currently Practicing
+
+[!2!2](https://gscribe.com/share/PNMMctnCGHfUStVx9)
+
+[##44](https://gscribe.com/share/RgriWSv93aiUtBC66)
+
+[2D2D]( https://gscribe.com/share/y9qBg1YKcFpgibXWA)
 
 ### Arhive
 
