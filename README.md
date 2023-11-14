@@ -8,28 +8,30 @@
 
 
 ## For Next Week
+[1!](https://gscribe.com/share/hcZJr4puxbD3gcRF8)
+
+[APLUS](https://gscribe.com/share/jryDw61BvWS62M1p8)
+
 [KRL as 16ths](https://gscribe.com/share/GFibwuXFXeKGVuoS8)
-
-[!2!2](https://gscribe.com/share/PNMMctnCGHfUStVx9)
-
-[DD++](https://gscribe.com/share/yueW9zkimudvucmF9)
-
-[43 Fast Idea](https://gscribe.com/share/Wjso4F6h4phietC78)
 
 [43 Fast V2](https://gscribe.com/share/PNMMctnCGHfUStVx9)
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
 
-### Currently Practicing
+### Arhive
+
+[1!](https://gscribe.com/share/hcZJr4puxbD3gcRF8)
+
+[APLUS](https://gscribe.com/share/jryDw61BvWS62M1p8)
 
 [!2!2](https://gscribe.com/share/PNMMctnCGHfUStVx9)
+
+[DD++](https://gscribe.com/share/yueW9zkimudvucmF9)
 
 [##44](https://gscribe.com/share/RgriWSv93aiUtBC66)
 
 [2D2D]( https://gscribe.com/share/y9qBg1YKcFpgibXWA)
-
-### Arhive
 
 [CC33](https://gscribe.com/share/iZiuGZnxrwczbme86)
 
