@@ -12,10 +12,6 @@
 
 [APLUS](https://gscribe.com/share/jryDw61BvWS62M1p8)
 
-[KRL as 16ths](https://gscribe.com/share/GFibwuXFXeKGVuoS8)
-
-[43 Fast V2](https://gscribe.com/share/PNMMctnCGHfUStVx9)
-
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
 
@@ -68,6 +64,10 @@
 [Groov 43 - Alt](https://gscribe.com/share/Yjo518rLA4uajmqg9)
 
 [43 Slow](audio/43-slow.mov)
+
+[KRL as 16ths](https://gscribe.com/share/GFibwuXFXeKGVuoS8)
+
+[43 Fast V2](https://gscribe.com/share/PNMMctnCGHfUStVx9)
 
 
 ## Aeumbra Transcriptions
