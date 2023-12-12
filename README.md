@@ -8,12 +8,24 @@
 
 ## For Next Week
 
-[664](https://gscribe.com/share/8rc9LiLq56pbE6fq6)
+[66*](https://gscribe.com/share/TgESegm7Nw7TRwYX6)
+[66#](https://gscribe.com/share/PJDfAhLdJhCeBmyz8)
+[66!](https://gscribe.com/share/H68ujcxtZbqfDve98)
+[66+](https://gscribe.com/share/p7ffgu3bkRSX8jz89)
+[661](https://gscribe.com/share/gC7soaoBZszJCyv88)
+[662](https://gscribe.com/share/izik1fMbGgM8RaSF8)
+[663](https://gscribe.com/share/Mqu59fSqmmZxDxKG6)
+[664](https://gscribe.com/share/kvGHAtokid6VQAXN8)
+[66A](https://gscribe.com/share/LEUbLWL5xvDBcrJy6)
+[66B](https://gscribe.com/share/ethmHv88ZismyQjQ7)
+[66C](https://gscribe.com/share/44DFUwzDSFBa7hAx6)
+[66D](https://gscribe.com/share/pksq7AGxfwRWevgM8)
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
 
-[66 - Blank](https://gscribe.com/share/75Z7pycFxgujSmwcA)
+[Blank](https://gscribe.com/share/75Z7pycFxgujSmwcA)
+
 
 ### Arhive
 
