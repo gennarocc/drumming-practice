@@ -6,14 +6,14 @@
 4. [Aeumbra Transcriptions](#aeumbra-transcriptions)
 5. [Transcriptions and Songs](#transcriptions-and-songs)
 
-
 ## For Next Week
-[1!](https://gscribe.com/share/hcZJr4puxbD3gcRF8)
 
-[APLUS](https://gscribe.com/share/jryDw61BvWS62M1p8)
+[664](https://gscribe.com/share/8rc9LiLq56pbE6fq6)
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
+
+[66 - Blank](https://gscribe.com/share/75Z7pycFxgujSmwcA)
 
 ### Arhive
 
