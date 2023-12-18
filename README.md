@@ -11,7 +11,7 @@
 [66*](https://gscribe.com/share/TgESegm7Nw7TRwYX6)
 [66#](https://gscribe.com/share/PJDfAhLdJhCeBmyz8)
 [66!](https://gscribe.com/share/H68ujcxtZbqfDve98)
-[66+](https://gscribe.com/share/p7ffgu3bkRSX8jz89)
+[66+](https://gscribe.com/share/MEfMVrYdSCZvwCpN6)
 [661](https://gscribe.com/share/gC7soaoBZszJCyv88)
 [662](https://gscribe.com/share/5i1vV1ps1VBXVoku8)
 [663](https://gscribe.com/share/Mqu59fSqmmZxDxKG6)
