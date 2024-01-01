@@ -8,6 +8,10 @@
 
 ## For Next Week
 
+[6!6](https://gscribe.com/share/r6RQFHYg5UqVhgVi6)
+[636](https://gscribe.com/share/zJpQbRsUs9Zyfy6N6)
+[6D6](https://gscribe.com/share/WZ7zwqZ6KbjwKmyE7)
+
 [66*](https://gscribe.com/share/TgESegm7Nw7TRwYX6)
 [66#](https://gscribe.com/share/PJDfAhLdJhCeBmyz8)
 [66!](https://gscribe.com/share/H68ujcxtZbqfDve98)
