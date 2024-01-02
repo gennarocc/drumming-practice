@@ -7,10 +7,12 @@
 5. [Transcriptions and Songs](#transcriptions-and-songs)
 
 ## For Next Week
-
+[!66](https://gscribe.com/share/ZxQsNQL3LvCUmCEr9)
 [6!6](https://gscribe.com/share/r6RQFHYg5UqVhgVi6)
+[366](https://gscribe.com/share/J94Vtwh7qhGUcpSS8)
 [636](https://gscribe.com/share/zJpQbRsUs9Zyfy6N6)
-[6D6](https://gscribe.com/share/hZH8qD1dJYzHrbyP8)
+[6D6](https://gscribe.com/share/ZMQK52EKHDzP53v96)
+[D66](https://gscribe.com/share/6SF6rpnqWYrDPZZV8)
 
 [66*](https://gscribe.com/share/TgESegm7Nw7TRwYX6)
 [66#](https://gscribe.com/share/PJDfAhLdJhCeBmyz8)
