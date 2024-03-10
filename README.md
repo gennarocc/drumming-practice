@@ -7,6 +7,16 @@
 5. [Transcriptions and Songs](#transcriptions-and-songs)
 
 ## For Next Week
+[!66(12)!66(16)](https://gscribe.com/share/3gM8D594CUFzyeKTA)
+[6!6(12)6!6(16)](https://gscribe.com/share/oKaQQ7Z2LHHLYBTR6)
+[66!(12)66!(16)](https://gscribe.com/share/3gM8D594CUFzyeKTA)
+[466(12)466(16)](https://gscribe.com/share/v7hjQaNc49aGVmTM9)
+[646(12)646(16)](https://gscribe.com/share/QfyXtdygeppWJFvu5)
+[664(12)664(16)](https://gscribe.com/share/v7hjQaNc49aGVmTM9)
+[C66(12)C66(16)](https://gscribe.com/share/cwkSRrPH3UsB7nSm9)
+[C66(12)C66(16)](https://gscribe.com/share/BkqkV8Y9rDW6MNfv5)
+[C66(12)C66(16)](https://gscribe.com/share/cwkSRrPH3UsB7nSm9)
+
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
@@ -16,7 +26,7 @@
 
 ### Arhive
 
-
+#### X66, 6X6, 66X
 
 [!66](https://gscribe.com/share/4LFK7Ujtv2m7vFoF9)
 [6!6](https://gscribe.com/share/r6RQFHYg5UqVhgVi6)
@@ -37,6 +47,8 @@
 [66B](https://gscribe.com/share/ethmHv88ZismyQjQ7)
 [66C](https://gscribe.com/share/44DFUwzDSFBa7hAx6)
 [66D](https://gscribe.com/share/pksq7AGxfwRWevgM8)
+
+#### 4
 
 [1!](https://gscribe.com/share/hcZJr4puxbD3gcRF8)
 
