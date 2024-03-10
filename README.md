@@ -7,17 +7,12 @@
 5. [Transcriptions and Songs](#transcriptions-and-songs)
 
 ## For Next Week
-[!66(12)!66(16)](https://gscribe.com/share/3gM8D594CUFzyeKTA)
-[6!6(12)6!6(16)](https://gscribe.com/share/8DNc5UegF7H1wxUSA)
-[66!(12)66!(16)](https://gscribe.com/share/LN8mM2PNS7Zz5kkY8)
+[!66(12)!66(16)](https://gscribe.com/share/sGbp1Y5BXaEAv7Bu8)
 
-[466(12)466(16)](https://gscribe.com/share/v7hjQaNc49aGVmTM9)
-[646(12)646(16)](https://gscribe.com/share/QfyXtdygeppWJFvu5)
-[664(12)664(16)](https://gscribe.com/share/ckhT5uhhi7mrVkZg9)
+[466(12)466(16)](https://gscribe.com/share/gG6vzxy85D2kygG16)
 
-[C66(12)C66(16)](https://gscribe.com/share/cwkSRrPH3UsB7nSm9)
-[6C6(12)6C6(16)](https://gscribe.com/share/WvQGWDYKaJqUVSBn7)
-[66C(12)66C(16)](https://gscribe.com/share/SzqjPeqg4wLe9HDb8)
+[C66(12)C66(16)](https://gscribe.com/share/ZKvi8xfbxvMbneGG8)
+
 
 
 ## Linear Drumming
