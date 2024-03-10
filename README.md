@@ -7,6 +7,17 @@
 5. [Transcriptions and Songs](#transcriptions-and-songs)
 
 ## For Next Week
+
+## Linear Drumming
+![LinearDrumming](images/linear.png)
+
+[Blank](https://gscribe.com/share/75Z7pycFxgujSmwcA)
+
+
+### Arhive
+
+
+
 [!66](https://gscribe.com/share/4LFK7Ujtv2m7vFoF9)
 [6!6](https://gscribe.com/share/r6RQFHYg5UqVhgVi6)
 [366](https://gscribe.com/share/J94Vtwh7qhGUcpSS8)
@@ -26,14 +37,6 @@
 [66B](https://gscribe.com/share/ethmHv88ZismyQjQ7)
 [66C](https://gscribe.com/share/44DFUwzDSFBa7hAx6)
 [66D](https://gscribe.com/share/pksq7AGxfwRWevgM8)
-
-## Linear Drumming
-![LinearDrumming](images/linear.png)
-
-[Blank](https://gscribe.com/share/75Z7pycFxgujSmwcA)
-
-
-### Arhive
 
 [1!](https://gscribe.com/share/hcZJr4puxbD3gcRF8)
 
