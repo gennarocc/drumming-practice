@@ -7,9 +7,9 @@
 5. [Transcriptions and Songs](#transcriptions-and-songs)
 
 ## For Next Week
-[Mambo - Quater](https://gscribe.com/share/231C9PxCJAqy9cg78)
+[Mambo - Downbeat](https://gscribe.com/share/YGpWQqD2eDa4d6Eh8)
 
-[Mabo - Offbeat](https://gscribe.com/share/WmnMGecqZrTTF3ys6)
+[Mambo - Offbeat](https://gscribe.com/share/WmnMGecqZrTTF3ys6)
 
 [Mambo - DingBada](https://gscribe.com/share/eYpojwRowx4hJDRL8)
 
