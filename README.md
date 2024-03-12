@@ -19,6 +19,7 @@
 
 [C66(12)C66(16)](https://gscribe.com/share/ZKvi8xfbxvMbneGG8)
 
+*All perms next time
 
 
 ## Linear Drumming
