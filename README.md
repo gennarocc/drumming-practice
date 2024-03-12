@@ -7,6 +7,12 @@
 5. [Transcriptions and Songs](#transcriptions-and-songs)
 
 ## For Next Week
+[Mambo - Quater](https://gscribe.com/share/231C9PxCJAqy9cg78)
+
+[Mabo - Offbeat](https://gscribe.com/share/WmnMGecqZrTTF3ys6)
+
+[Mambo - DingBada](https://gscribe.com/share/eYpojwRowx4hJDRL8)
+
 [!66(12)!66(16)](https://gscribe.com/share/sGbp1Y5BXaEAv7Bu8)
 
 [466(12)466(16)](https://gscribe.com/share/gG6vzxy85D2kygG16)
