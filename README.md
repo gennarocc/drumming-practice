@@ -13,7 +13,7 @@
 
 [Mambo - DingBada](https://gscribe.com/share/eYpojwRowx4hJDRL8)
 
-[!66(12)!66(16)](https://gscribe.com/share/sGbp1Y5BXaEAv7Bu8)
+[!66(12)!66(16)](https://gscribe.com/share/L9aAZFuHpQwKZXEd6)
 
 [466(12)466(16)](https://gscribe.com/share/gG6vzxy85D2kygG16)
 
