@@ -13,6 +13,7 @@
 
 [Mambo - DingBada](https://gscribe.com/share/eYpojwRowx4hJDRL8)
 
+
 [!66(12)!66(16)](https://gscribe.com/share/L9aAZFuHpQwKZXEd6)
 
 [6!6(12)616(16)](https://gscribe.com/share/d7Fv7pxxAZ5rxLVx7)
@@ -61,6 +62,16 @@
 [66B](https://gscribe.com/share/ethmHv88ZismyQjQ7)
 [66C](https://gscribe.com/share/44DFUwzDSFBa7hAx6)
 [66D](https://gscribe.com/share/pksq7AGxfwRWevgM8)
+
+[!66(12)!66(16)](https://gscribe.com/share/L9aAZFuHpQwKZXEd6)
+[6!6(12)616(16)](https://gscribe.com/share/d7Fv7pxxAZ5rxLVx7)
+[66!(12)66!(16)](https://gscribe.com/share/dEM8ex3ouKr2tHCVA)
+[466(12)466(16)](https://gscribe.com/share/gG6vzxy85D2kygG16)
+[646(12)646(16)](https://gscribe.com/share/5Zaoj2R246gRA7wz7)
+[664(12)664(16)](https://gscribe.com/share/oLUugu3jRA8GzNJc6)
+[C66(12)C66(16)](https://gscribe.com/share/ZKvi8xfbxvMbneGG8)
+[6C6(12)(6C6(16)](https://gscribe.com/share/gA1NR8PLDfJS1mE36)
+[66C(12)(66C(16)](https://gscribe.com/share/oj7oqGszCDRd61TGA)
 
 #### 4
 
