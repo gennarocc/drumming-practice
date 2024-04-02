@@ -7,11 +7,11 @@
 5. [Transcriptions and Songs](#transcriptions-and-songs)
 
 ## For Next Week
-[Mambo - Downbeat](https://gscribe.com/share/YGpWQqD2eDa4d6Eh8)
+[Songo - Downbeat](https://gscribe.com/share/YGpWQqD2eDa4d6Eh8)
 
-[Mambo - Offbeat](https://gscribe.com/share/WmnMGecqZrTTF3ys6)
+[Songo - Offbeat](https://gscribe.com/share/WmnMGecqZrTTF3ys6)
 
-[Mambo - DingBada](https://gscribe.com/share/eYpojwRowx4hJDRL8)
+[Songo - DingBada](https://gscribe.com/share/eYpojwRowx4hJDRL8)
 
 
 [!66(12)!66(16)](https://gscribe.com/share/L9aAZFuHpQwKZXEd6)
