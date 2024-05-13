@@ -7,31 +7,14 @@
 5. [Transcriptions and Songs](#transcriptions-and-songs)
 
 ## For Next Week
-[Songo - Downbeat](https://gscribe.com/share/YGpWQqD2eDa4d6Eh8)
 
-[Songo - Offbeat](https://gscribe.com/share/WmnMGecqZrTTF3ys6)
+[64 Fast - Funk Muller](https://gscribe.com/share/oLdkRj6733kuwBjUA)
 
-[Songo - DingBada](https://gscribe.com/share/eYpojwRowx4hJDRL8)
+[64 FAast - Funk Offbeat](https://gscribe.com/share/feQrsxPw6FDxHiAz7)
 
+[64 Fast - Linear 1](https://gscribe.com/share/AwX7q7PwFPqhAUdp7)
 
-[!66(12)!66(16)](https://gscribe.com/share/L9aAZFuHpQwKZXEd6)
-
-[6!6(12)616(16)](https://gscribe.com/share/d7Fv7pxxAZ5rxLVx7)
-
-[66!(12)66!(16)](https://gscribe.com/share/dEM8ex3ouKr2tHCVA)
-
-[466(12)466(16)](https://gscribe.com/share/gG6vzxy85D2kygG16)
-
-[646(12)646(16)](https://gscribe.com/share/3Hk5kkn3vaJ5eQSC9)
-
-[664(12)664(16)](https://gscribe.com/share/3p5bpFwDV3wLci7n7)
-
-[C66(12)C66(16)](https://gscribe.com/share/ZKvi8xfbxvMbneGG8)
-
-[6C6(12)(6C6(16)](https://gscribe.com/share/zc6zFSfB8wa1gu6s6)
-
-[66C(12)(66C(16)](https://gscribe.com/share/oj7oqGszCDRd61TGA)
-
+[64 Fast - Linear 1](https://gscribe.com/share/AwX7q7PwFPqhAUdp7)
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
@@ -42,6 +25,18 @@
 ### Arhive
 
 #### X66, 6X6, 66X
+
+[!66(12)!66(16)](https://gscribe.com/share/L9aAZFuHpQwKZXEd6)
+[6!6(12)616(16)](https://gscribe.com/share/d7Fv7pxxAZ5rxLVx7)
+[66!(12)66!(16)](https://gscribe.com/share/dEM8ex3ouKr2tHCVA)
+
+[466(12)466(16)](https://gscribe.com/share/gG6vzxy85D2kygG16)
+[646(12)646(16)](https://gscribe.com/share/3Hk5kkn3vaJ5eQSC9)
+[664(12)664(16)](https://gscribe.com/share/3p5bpFwDV3wLci7n7)
+
+[C66(12)C66(16)](https://gscribe.com/share/ZKvi8xfbxvMbneGG8)
+[6C6(12)(6C6(16)](https://gscribe.com/share/zc6zFSfB8wa1gu6s6)
+[66C(12)(66C(16)](https://gscribe.com/share/oj7oqGszCDRd61TGA)
 
 [!66](https://gscribe.com/share/4LFK7Ujtv2m7vFoF9)
 [6!6](https://gscribe.com/share/r6RQFHYg5UqVhgVi6)
@@ -114,6 +109,12 @@
 [22DD](https://gscribe.com/share/meuukLUAF5mdsnSB6)
 
 ## Jams and Beats
+
+[Songo - Downbeat](https://gscribe.com/share/YGpWQqD2eDa4d6Eh8)
+
+[Songo - Offbeat](https://gscribe.com/share/WmnMGecqZrTTF3ys6)
+
+[Songo - DingBada](https://gscribe.com/share/eYpojwRowx4hJDRL8)
 
 [15 Slow](https://github.com/gennarocc/drumming-practice/assets/13220093/56c961d4-d3ca-494d-8617-4ab5eaba974f)
 
