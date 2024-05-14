@@ -14,7 +14,7 @@
 
 [64 Fast - Linear 1](https://gscribe.com/share/AwX7q7PwFPqhAUdp7)
 
-[64 Fast - Linear 1](https://gscribe.com/share/AwX7q7PwFPqhAUdp7)
+[64 Fast - Linear 2](https://gscribe.com/share/CDXYJUwavJmBXo7G8)
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
