@@ -1,4 +1,4 @@
-# Drumming Practice
+v# Drumming Practice
 
 1. [For Next Week](#for-next-week)
 2. [Linear Drumming](#linear-drumming)
@@ -12,7 +12,7 @@
 
 [64 FAast - Funk Offbeat](https://gscribe.com/share/feQrsxPw6FDxHiAz7)
 
-[64 Fast - Linear 1](https://gscribe.com/share/AwX7q7PwFPqhAUdp7)
+[64 Fast - Linear 1](https://gscribe.com/share/VTFpasfMvyg2fQ9aA)
 
 [64 Fast - Linear 2](https://gscribe.com/share/CDXYJUwavJmBXo7G8)
 
