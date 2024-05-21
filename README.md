@@ -14,7 +14,7 @@ v# Drumming Practice
 
 [64 Fast - Linear 1](https://gscribe.com/share/VTFpasfMvyg2fQ9aA)
 
-[64 Fast - Linear 2](https://gscribe.com/share/CDXYJUwavJmBXo7G8)
+[64 Fast - Linear 2](https://gscribe.com/share/HzBkCSURNjHRBPUJ6)
 
 ## Linear Drumming
 ![LinearDrumming](images/linear.png)
